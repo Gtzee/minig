@@ -1,0 +1,2 @@
+# minig
+Hard work 
